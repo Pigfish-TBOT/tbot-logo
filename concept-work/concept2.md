@@ -1,6 +1,6 @@
 New TBOT Logo, concept 2. Digital editing, original courtesy One Piece.
 
-Imagery: simplify, tokenize (circle / coin), pirate, skull, smile, bank columns as teeth =), kawaii-dark, manga, cutesy-dark
+Imagery: simplify, tokenize (circle / coin), pirate, skull, smile, bank columns as teeth =), sword slashes, kawaii-dark, manga, cutesy-dark
 
 Artist: @KaiJasmine
 
