@@ -6,6 +6,10 @@ Imagery: pirate, coin, skull & crossbones, eye patch, dollar sign, bank columns 
 
 Artist: @KaiJasmine
 
+Scratch project: 
+
+https://scratch.mit.edu/projects/637579294/
+
 Preview Image:
 
 https://ibb.co/DL03QHD
